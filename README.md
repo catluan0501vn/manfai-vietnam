@@ -1,2 +1,0 @@
-# manfai-vietnam
-MANFAI TEMPLATE
